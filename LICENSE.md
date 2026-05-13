@@ -1,4 +1,4 @@
-# 
+# Enhance CorelDRAW for macOS with CorelDRAW for macOS professional Automation - AI upscaling and smart objects, the #1 automation. Includes AI upscaling and smart objects for a
 
 
 
